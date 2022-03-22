@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MyNameIsTeo-git
+- 👋 Hi, I’m MyNameIsTeo__
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to learn
 - 📫 You can write me on my Discord server: https://discord.gg/xe4UVMZ
